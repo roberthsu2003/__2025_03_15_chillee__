@@ -16,3 +16,9 @@ https://youtube.com/live/sHN3QWXbrBs
 
 ## 2025_03_29_下午
 https://youtube.com/live/H3UmK6Ps898
+
+## 2025_04_12_早上
+https://youtube.com/live/ALV67v1iKLM
+
+## 2025_04_12_下午
+https://youtube.com/live/FUTcjLy062k
